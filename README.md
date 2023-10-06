@@ -1,9 +1,9 @@
-### entre logo no meu perfil 🖤
+### entre no perfil ae
 
 Meu nome é Emanuel Seller
 
 - estou estudando agora
-- sou lindo
+- sla q que isso
 
 - ### meu contato de email é:
 
