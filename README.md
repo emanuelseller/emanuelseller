@@ -8,3 +8,6 @@ Meu nome é Emanuel Seller
 - ### meu contato de email é:
 
 - @emanuel.seller@escola.pr.gov.br
+
+![](https://media.tenor.com/QqHSohXgGoAAAAAM/inter-internacional.gif)
+
